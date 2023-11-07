@@ -1,1 +1,1 @@
-# 1_semestr_EWD_Prezentacja
+Prezentacja z przedmiotu EWD 
